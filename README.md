@@ -1,2 +1,0 @@
-# proyectos
-duoc proyectos ; )
